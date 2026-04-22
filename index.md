@@ -1,5 +1,7 @@
 # Norwood Open Mic
 
+![Norwood Open Mic Gravatar](https://www.gravatar.com/avatar/adcda19cd81818cf19d8e45caa96682b)
+
 The Norwood Open Mic will be an opportunity for people to share their original poetry, prose, music and/or comedy in a radically supportive environment. 
 
 If you have a moment please fill out this survey to let me know you are interested in this event. 
